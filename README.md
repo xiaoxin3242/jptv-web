@@ -9,8 +9,8 @@
 - **高清流畅播放**：采用高质量视频流技术，确保观看体验流畅无卡顿，为用户带来优质的视觉享受。
 
 ## 下载方式
-- **主要下载通道**：[点击此处下载]([https://yun.urldwz.com/s/qJrUL](https://xn--mnqu41b.cn/))
-- **备用下载通道**：[点击此处下载]([https://www.lanzn.com/ibSir2tqzfxg](https://xn--mnqu41b.cn/))
+- **主要下载通道**：[点击此处下载](https://xn--mnqu41b.cn/)
+- **备用下载通道**：[点击此处下载](https://xn--mnqu41b.cn/)
 
 ## 频道列表
 APP提供多样化的日本电视频道，具体频道如下：
